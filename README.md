@@ -2,7 +2,7 @@
 - 👀 I’m interested in Gaming, crypto, Travels and much more 
 - 🌱 I’m currently learning network and development
 - 💞️ I’m looking to collaborate on Websites, apps..
-- 📫 How to reach me Discord. JamesWrankYT#9963
+- 📫 How to reach me ? Find it yourself bro
 
 - Adding some changes to get used to the interface
 
